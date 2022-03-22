@@ -1,7 +1,7 @@
 # Khizir Yanduev
 ## contacts
 * Location: Argun, Russia
-* Phone + 922 674 95 94
+* Phone + 922 674 95 93
 * yanduev.khizir@mail.ru
 * Github: KhizirYanduev2022
 ## About me
